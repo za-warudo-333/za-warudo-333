@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @za-warudo-333
-- 👀 I’m interested in arts, phylosophy and sports.
+- 👀 I’m interested in arts, philosophy and sports.
 - 🌱 I’m currently learning web development.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ?  Here is my email: sapbordes0@gmail.com
